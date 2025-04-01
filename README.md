@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Olush47-0
 - 🌱 Python/lua/html/c-sharp/java/javascript
-- 📫 How to reach me: t.me/olush47 
+- 📫 How to reach me: t.me/olush47 - DC: boss_olush
 - 😄 Pronouns: He/Him
